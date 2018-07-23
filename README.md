@@ -1,0 +1,1 @@
+# BitcoinAdult-Mac-Wallet
